@@ -1,4 +1,4 @@
-## Ola,esse perfil e sobre desenvolvimentos de scrpt 👋🖤
+## Ola,esse perfil e sobre desenvolvimentos de scrpts 👋🖤
 
 meu nome e :bryan
 
