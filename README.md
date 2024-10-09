@@ -1,4 +1,4 @@
-## Ola,sou desenvolvidor de scrpts 👋🖤
+## Ola,sou desenvolvidor de scripts 👋🖤
 
 meu nome e :bryan
 
